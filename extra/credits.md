@@ -6,3 +6,4 @@
 - https://pixabay.com/photos/surface-pattern-texture-design-945444/
 - https://pixabay.com/photos/architecture-gang-modern-3357028/
 - https://pixabay.com/photos/architecture-modern-building-facade-1048092/
+- https://pixabay.com/photos/architecture-building-glass-modern-7947724/
